@@ -1,0 +1,1 @@
+take a bowl put all raw ingridents in it and egg to ,stir it well,the add milk to it while stirring after stirring add cocoa powder and vinnillaextract and then crese the untensil with butter and put this batter in the untensil befour putting in into oven preheat it for 12-13 min and the the cake will be ready in 40to45 min decorate it with some fruit and its ready to serve.
